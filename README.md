@@ -8,4 +8,4 @@ Meu nome é Ellyson da Silva
 
 ellysonramalho16@gmail.com
 
-![[descrição do GIF](https://media1.tenor.com/m/tFIL3ypwCR4AAAAd/bungas-kleberiano.gif)]([link GIF do Tenor](https://media1.tenor.com/m/-uInfdFbh10AAAAd/kleberiano.gif))
+![Bungas]([link GIF do Tenor](https://media1.tenor.com/m/tFIL3ypwCR4AAAAd/bungas-kleberiano.gif))
